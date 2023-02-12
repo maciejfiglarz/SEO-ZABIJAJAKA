@@ -1,3 +1,5 @@
+https://www.facebook.com/abdul.ludba.7/videos/6464832496861634/?idorvanity=496083163758299
+
 # SEO ZABIJAKA
 **Cieszę się, że trafiłeś na to repozytorium. Jeżeli uważasz, że narzędzie jest przydatne to możesz postawić mi kawę na Buy Me A Coffe :)**
 
